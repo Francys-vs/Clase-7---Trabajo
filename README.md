@@ -1,1 +1,1 @@
-# Clase-7---Trabajo
+# Clase 7 Trabajo
